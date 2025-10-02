@@ -25,8 +25,8 @@
 
 ## 📫 Contato  
 
-- ✉️ Email: *adicione seu email aqui*  
-- 🔗 LinkedIn: *adicione seu link do LinkedIn aqui*  
+- ✉️ Email:emanuel09062009@gmail.com
+- 🔗 LinkedIn:https://www.linkedin.com/in/emanuel-cardoso-263002388
 
 ---
 
