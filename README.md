@@ -27,6 +27,7 @@
 
 - ✉️ Email:emanuel09062009@gmail.com
 - 🔗 LinkedIn:https://www.linkedin.com/in/emanuel-cardoso-263002388
+- Instagram:https://www.instagram.com/emanuel.cardoso4
 
 ---
 
